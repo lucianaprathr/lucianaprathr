@@ -8,6 +8,4 @@
 - 🌱 I’m currently learning about the IT world.
 - 💬 Ask me about new job opportunities or Psychology stuff in general!
 - 📫 How to reach me: look for me in Linkedin at /lucianaprat
-- 😄 Pronouns: She/He/Hers
-- 
--->
+- 😄 Pronouns: She/He/Hers ###
